@@ -1,1 +1,1 @@
-Monkey brain hieghschool student, I make things I guess.
+Monkey brain highschool student, I make things I guess.
